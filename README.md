@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Basicoderguy
+- 👀 I’m interested in: Lua/Roblox Studio
+- 🌱 I’m currently learning: Phyton And C++
+- 💞️ I’m looking to collaborate on: None Currently
+- 📫 How to reach me: my Discord which is agentlebacon_07133 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: im obsessed with top hat
