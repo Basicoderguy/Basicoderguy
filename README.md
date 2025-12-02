@@ -6,4 +6,4 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: im obsessed with top hat
 
-google.com
+[Click here to go to Google](https://www.google.com)
